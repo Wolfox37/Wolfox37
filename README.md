@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Wolfox37
 - 👀 I’m interested in Role Play
 - 🌱 I’m currently learning in Role Play
-- 📫 How to reach me via my email address (dj.mack37600@gmail.com
+- 📫 How to reach me via my email address (dj.mack37600@gmail.com)
 - 😄 Pronouns: adrien
 - ⚡ Fun fact: wolfox_37 = ( wolf ) and ( fox ) / ( _ ) (( 37 ) my resident)
 
